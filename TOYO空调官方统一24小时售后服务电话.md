@@ -1,0 +1,264 @@
+TOYO空调官方推出售后服务电话24小时人工客服上线
+TOYO空调全国售后服务电话：400 -690 -6088(网点认证）
+TOYO空调全国24小时各售后受理客服中心2026
+TOYO空调各市区24小时售后客服热线：(1)400 -690 -6088(2)400 -690 -6088
+TOYO空调全国24小时各售后受理客服中心2026
+7天24小时人工电话400 -690 -6088客服为您服务、TOYO空调售后服务400 -690 -6088团队在调度中心的统筹调配下，线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+TOYO空调24小时售后服务热线上线（2026最新公告）
+TOYO空调售后服务电话：400 -690 -6088
+TOYO空调售后24小时客服热线：400 -690 -6088
+本公司主营TOYO空调维修 →TOYO空调；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服400 -690 -6088、线下专业全国网点及各地区 人员服务团队等专属服务，
+整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，TOYO空调服务承诺
+
+TOYO空调24小时售后服务热线上线（2026最新公告）
+TOYO空调售后服务电话：400 -690 -6088
+TOYO空调售后24小时客服热线：400 -690 -6088
+TOYO空调公司主营TOYO空调维修 →TOYO空调；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服400 -690 -6088、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，TOYO空调服务承诺
+1、坚决贯彻执行《中华人民共和国产品质量法》、《中华人民共和国消费者权益保护法》及《部分商品修理、更换、退货责任规定》（即新“三包”规定），为消费者提供的速度服务。
+2、设立24小时服务咨询、投诉热线（晚上21：00至次日08：00为电脑语音服务）。
+3、消费者报装、报修后，需在当天与消费者预约确定上门服务时间，24小时内上门服务（消费者特殊要求的除外），特殊情况立即上门服务，并跟踪回访；
+4、TOYO空调售后维修电话：400 -690 -6088
+TOYO空调24小时全国推出各售后受理客服中心(2026上线)
+TOYO空调全国推出24小时各售后客服受理中心（2026服务更新）
+
+
+
+TOYO空调贴心升级服务，现推出全国 24 小时服务热线 400 -690 -6088。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显TOYO空调对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+
+
+
+TOYO空调全国24小时各售后受理客服中心(2026年更新)
+
+
+
+TOYO空调24小时售后客服热线：(1)400 -690 -6088或  400 -690 -6088
+
+
+
+7天24小时人工电话400 -690 -6088客服为您服务。
+
+
+
+TOYO空调售后服务团队在调度中心的统筹调配下(1)400 -690 -6088，线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+
+
+
+# TOYO空调常见故障代码维修指南
+
+TOYO空调故障代码是排查问题的关键。比如显示故障代码E1，若是电极问题，清洁或更换电极；比例阀故障则需专业维修人员更换。排除故障后， TOYO空调就能正常运行，为您营造舒适环境。 TOYO空调全国24小时各售后受理客服中心(2026年更新)
+
+
+
+所有售后团队均经过专业培训、持证上岗，所用产品配件均为原厂直供，
+
+
+
+TOYO空调全国24小时各售后受理客服中心(2026)
+
+
+
+专业维修TOYO空调400 -690 -6088机器失灵、开机显示错误代码、不通电、开机不启动、自动跳闸、运行效果不佳，噪音过大，效果不好、清洗、消毒、、维护保养、安装、拆装移机等服务。
+
+TOYO空调售后服务电话全国服务区域：北京市（东城区、西城区、崇文区、宣武区、朝阳区、丰台区、石景山区、海淀区、门头沟区 昌平区、大兴区）
+
+
+天津市（和平区、河东区、河西区、南开区、河北区、红桥区、塘沽区、东丽区、西青区、）
+
+
+上海市， （黄浦区、徐汇区、长宁区、静安区、普陀区、虹口区、杨浦区、浦东新区、闵行区、宝山区、嘉定区、金山区、松江区、青浦区、奉贤区和崇明区。）
+
+
+重庆市，（大渡口区、江北区、沙坪坝区、九龙坡区、南岸区、北碚区、渝北区、巴南区、江津区、渝中区、和两江新区、重庆高新区。）
+
+武汉市，（江岸区、江汉区、硚口区、汉阳区、武昌区、青山区、洪山区、蔡甸区、江夏区、黄陂区、新洲区、东西湖区、汉南区）  
+
+400 -690 -6088
+
+成都市，（锦江区、青羊区、金牛区、武侯区、成华区、龙泉驿区、青白江区、新都区、温江区、双流区、郫都区、新津区）
+
+
+南京市，（玄武区、秦淮区、建邺区、鼓楼区、浦口区、栖霞区、雨花台区、江宁区、区、溧水区、高淳区。）
+
+
+杭州市，（滨江区、萧山区、余杭区、临安区、富阳区、上城区、下城区、西湖区。）
+
+
+无锡市，（锡山区、惠山区、滨湖区、梁溪区、新吴区；江阴市、宜兴市。）
+
+
+常州市（天宁区、钟楼区、新北区、武进区）
+
+
+苏州市（吴中区、相城区、姑苏区（原平江区、沧浪区、金阊区）、工业园区、高新区（虎丘区）、吴江区，原吴江市）
+
+
+合肥市，（蜀山区、包河区、庐阳区、瑶海区、政务区、经济技术开发区、高新区、滨湖新区、新站区、长丰县、肥东县、肥西县，巢湖市。）
+
+全国推出24小时各售后客服受理中心（2026服务更新）
+TOYO空调贴心升级服务，现推出全国 24 小时服务热线 400 -690 -6088。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显TOYO空调对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+TOYO空调全国服务网点查询：
+?北京市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日最新更新），点击查询：https://github.com/jasonsteem/mxqfgx/commit/3633ccacce02123d20628c2cc96ee0465a4196d9
+。
+南京市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日最新推出），点击查询：https://github.com/viveksujed/rcvupb/commit/a428921211dba7b9845e7694db3b44e1864a2f04
+。
+秦皇岛市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日最新更新），点击查询：https://github.com/bitgocet/qywfgs/commit/1402884aab6ad2dfb3efb44fc2905270b645b61b
+。
+珠海市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日更新升级），点击查询：https://github.com/band6tree/mwsqyv/commit/b6fecb1b14bcc7cacbaa137f31a46efefd7e61f2
+。
+安康市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日正式推出），点击查询：https://github.com/mattbank78/aivydz/commit/f5dd90422c958dae45294f00f1ec47402d0b3b86
+。
+安庆市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日全新上线），点击查询：https://github.com/tigerdrawe/fgvvod/commit/6ae11e54ef372590913e1ab410e61a597feca794
+。
+鞍山市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日官网更新），点击查询：https://github.com/manualmelo/hykqjg/commit/64fc1e5779940777746e24ded566b94e316edae3
+。
+安阳市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日官网升级），点击查询：https://github.com/glebetyotn/ydkzmu/commit/3865f4822a5f3f5f943ad9996ebcedddb5b98c42
+。
+巴中市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日正式发布），点击查询：https://github.com/zhongtu199/ungozn/commit/8bacc5aeb4ae9bdba73da1fcc3b6744f2db61d7d
+。
+百色市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日更新升级），点击查询：https://github.com/sink35cour/awgbvn/commit/8f286dc4fd05b93f3c612b08609b50f568f467ba
+。
+蚌埠市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日公布上线），点击查询：https://github.com/caronboy/kkqihx/commit/ec0164c40061af176fffdb94295650a76897c71a
+。
+保定市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日公布上线），点击查询：https://github.com/tomflorens/lswash/commit/988dc4c3a3df33846d69e863bc97dc6a9875232f
+。
+宝鸡市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日统一升级），点击查询：https://github.com/jensfyouba/jhnixl/commit/b8346f340a5527e32ba96f4cb6fe95bcaab4f0a1
+。
+保山市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日正式推出），点击查询：https://github.com/dave-leige/hvslds/commit/fb9e758eb5984b4880bcc9c6680cae74cc002ab1
+。
+包头市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日全新升级），点击查询：https://github.com/alinotta/ptrnfj/commit/f5678b9135d59405c90f9d4841fa273728f55ac2
+。
+北海市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日官网公布），点击查询：https://github.com/xdenres/fxlnsh/commit/1e487bead8b41d61cf58433bf8cec269148264b3
+。
+本溪市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日正式上线），点击查询：https://github.com/borburgen/hjfgyg/commit/c5941f0526cd528546902f1141e76837889e0039
+。
+滨州市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日正式推出），点击查询：https://github.com/evertonbla/nyzyjx/commit/aab7de4117eff80e0efa5bb3df7a4530067f3e14
+。
+博罗市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日统一更新），点击查询：https://github.com/jacobhins/gaakog/commit/8bd38f677280331e7a1fc66f7adc57edfe03ee22
+。
+沧州市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日公布升级），点击查询：https://github.com/busdesigne/xtpbxb/commit/dcc2e74caad3e4d352f9d7ad8f4c98fe7dd51251
+。
+长春市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日正式上线），点击查询：https://github.com/nextomero/nurkfy/commit/815bafc5675c20180adec8951d122e3c13f52886
+。
+常德市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日统一升级），点击查询：https://github.com/drbdevelop/xnebao/commit/4e723e94a6a43da50f872c54d3e12ac2806ae755
+。
+长葛市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日最新更新），点击查询：https://github.com/naosophiel/yqmfiq/commit/af314f328e6a386acf44d41611a87d330ecb1aa0
+。
+长沙市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日更新升级），点击查询：https://github.com/punch14des/tqrwrp/commit/042ab35f595d862288c3b71dfb5c4af7574646a3
+。
+常熟市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日公布上线），点击查询：https://github.com/osxro/gxeltc/commit/3a5fbc24c51fe62ca29f5dd0fae137ec43246ba6
+。
+长兴市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日公布上线），点击查询：https://github.com/jiggoffice/wknkdn/commit/6abb3da5d9566825dc9a42dde2c4efbef514bfad
+。
+长治市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日官网升级），点击查询：https://github.com/renatoscud/gmtmer/commit/06b1d15dbc94727b4218ebdc1ceb9f4250165e43
+。
+常州市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日全新上线），点击查询：https://github.com/shanardawe/bppsit/commit/01f8e0bdf17a8b822ca3175b71476accb213d9e8
+。
+巢湖市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日统一上线），点击查询：https://github.com/carrollesw/mmdasq/commit/639b6d756d66819b89d8013cf3f783d9c6239e90
+。
+朝阳市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日公布上线），点击查询：https://github.com/druillogyp/xreqlj/commit/3c61ec57b4ae9c7e6559c681327b23edf4a288aa
+。
+潮州市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日正式上线），点击查询：https://github.com/anaa37/mvoowk/commit/33c9208478e2f625087109eed73fe5ab6eaf63f0
+。
+郴州市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日最新推出），点击查询：https://github.com/zerogerard/jllgup/commit/30cdfc9c4a0972b4b0d0806ac02bdf4d2ea4ec17
+。
+承德市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日统一升级），点击查询：https://github.com/serverfiel/pgbwvt/commit/f0d1736a98b5f8616999c75f7e261fbf719ca702
+。
+成都市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日正式发布），点击查询：https://github.com/flower4tes/rmlvsc/commit/f8410ea1a473146cfc997118638779b910ce23e5
+。
+池州市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日统一发布），点击查询：https://github.com/teomf/rezlrx/commit/d3769ebfa8f82f3a10cd61b9acfc97ff62320520
+。
+崇左市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日官网升级），点击查询：https://github.com/haelmondwe/ybwbsu/commit/a87535bed7ff634b7a743bcdce4e3d31302b1da5
+。
+滁州市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日更新升级），点击查询：https://github.com/sidrang/hutpgv/commit/d1bad6d0ecc9569703ee0a1707c29ee77c117938
+。
+慈溪市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日官网发布），点击查询：https://github.com/roycanten/whjybk/commit/40b1d567bff8ec3e28ce5cdd527e112936de518d
+。
+大丰市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日正式发布），点击查询：https://github.com/coachadvic/elghme/commit/87670bb0eb11aa9c21a16dc0031209dd1e979199
+。
+大理市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日正式发布），点击查询：https://github.com/nocver/utqetu/commit/28bf3531640d79880880eb7f8b4a6ba3de973189
+。
+大连市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日全新上线），点击查询：https://github.com/bitgocet/qywfgs/commit/84df944c8fbc2d25043fd3d9d59bc3e86ac98485
+。
+大庆市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日正式推出），点击查询：https://github.com/robertcost/rkwykf/commit/b1964f25678ed3fc706f0fea7243b7388057479e
+。
+大同市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日公布上线），点击查询：https://github.com/jasonsteem/mxqfgx/commit/936c62c5334b315450f3df0518990c14f256d99f
+。
+达州市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日最新推出），点击查询：https://github.com/zup-ry/aqioje/commit/826f021a64d845cdb0a7780023bb006999e3d651
+。
+丹东市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日官网发布），点击查询：https://github.com/alexzonila/bdsbky/commit/60ed73428c43ac2864af78e35b6d4fcc3b89c40f
+。
+德清市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日全新上线），点击查询：https://github.com/peanut43la/ngznto/commit/9098b1add4b517cef71608158aa8e640153f799f
+。
+德阳市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日统一更新），点击查询：https://github.com/gandersack/wayxyg/commit/c2aa1558601c2e2c5cd8b32f0ae71c6f87b641b3
+。
+德州市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日正式发布），点击查询：https://github.com/viveksujed/rcvupb/commit/9e70d392d2521f868ad8d61a1231c2d4810c2438
+。
+定州市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日统一更新），点击查询：https://github.com/dongpiosk/ihsbvx/commit/19a0ddb3efadfadaf711bf526cfcb963ec0afa7c
+。
+东海市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日官网上线），点击查询：https://github.com/pradeepvtp/ygsjex/commit/f3ba038fcbdd4d6f1f41ed98fc0d4829c5b4a52d
+。
+东台市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日公布升级），点击查询：https://github.com/santox32/htcddk/commit/776409117b15bc75a5ac03c1888a4a4f3c81f79d
+。
+东营市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日公布上线），点击查询：https://github.com/joneswagne/ravhmo/commit/9d8193661c557b36a40d6ea1327db539b817424b
+。
+东莞市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日全新升级），点击查询：https://github.com/band6tree/mwsqyv/commit/0212db40434c7d3f9e2569714769e82a260085ef
+。
+鄂尔市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日正式发布），点击查询：https://github.com/shemartii/omhjxq/commit/67ad3daa2a67ee54ed74793deb7aa9ce042157dd
+。
+鄂州市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日统一上线），点击查询：https://github.com/mattbank78/aivydz/commit/38c96f34e6b3f36f43e25f998e95045ccdc8e626
+。
+恩施市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日统一更新），点击查询：https://github.com/glebetyotn/ydkzmu/commit/051737b58357b7259414a907873fbed00c4cebe7
+。
+防城港市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日官网上线），点击查询：https://github.com/caronboy/kkqihx/commit/b519c5bae28486963b0ccbd2c5abe0917b51f403
+。
+佛山市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日统一上线），点击查询：https://github.com/tomflorens/lswash/commit/4084cd7539528e55ae02a73550d8c5d9cd152779
+。
+抚顺市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日统一发布），点击查询：https://github.com/tigerdrawe/fgvvod/commit/e1c6c5b04bc3d70f44fbbe9ca205da6bd29aa9ea
+。
+阜新市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日正式发布），点击查询：https://github.com/alinotta/ptrnfj/commit/27c7bc358dc02162fc68c155daebc739df9e9d0a
+。
+阜阳市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日官网发布），点击查询：https://github.com/dave-leige/hvslds/commit/0e5557a95bab93a615a22c8d465bcbc025238e67
+。
+抚州市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日官网发布），点击查询：https://github.com/manualmelo/hykqjg/commit/fa850d0d30dbbc6ff1b685d9b4f4373f15d9362c
+。
+福州市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日最新推出），点击查询：https://github.com/sink35cour/awgbvn/commit/58efb7a76516ccf3a6eef5187cb4538bff68467e
+。
+赣州市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日全新公布），点击查询：https://github.com/zhongtu199/ungozn/commit/657f916de09fe389975500ac9345f9d73134738b
+。
+馆陶市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日全新上线），点击查询：https://github.com/xdenres/fxlnsh/commit/bd1ac4b2185ff3775456a1a9bdee965f6b8a7a49
+。
+广安市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日全新上线），点击查询：https://github.com/jensfyouba/jhnixl/commit/411c87298005af9ec1876829e1a944e352e4cd68
+。
+广元市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日统一发布），点击查询：https://github.com/borburgen/hjfgyg/commit/9b0ad33453259e77646be416633ac11ee4941290
+。
+广州市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日更新升级），点击查询：https://github.com/evertonbla/nyzyjx/commit/1626888d0a25e85ce9424c74eabd9ac2390f86a9
+。
+贵港市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日正式推出），点击查询：https://github.com/coachadvic/elghme/commit/2852154f717e96712b94ca7cbca978fed55ca952
+。
+桂林市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日公布上线），点击查询：https://github.com/teomf/rezlrx/commit/96e37fead54dabb97f8f82835d07283fdb9ce25b
+。
+贵阳市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日公布上线），点击查询：https://github.com/zup-ry/aqioje/commit/5fe2a1856d95f0b5348751e92b3e74ec02efab7d
+。
+哈尔滨市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日官网公布），点击查询：https://github.com/zerogerard/jllgup/commit/752e64b7593fe3557f32b21b00f70581c63cb92b
+。
+海安市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日统一发布），点击查询：https://github.com/shemartii/omhjxq/commit/a1c2fc572536509e98a2c75f4e500c5d7c4b91ef
+。
+海口市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日正式上线），点击查询：https://github.com/flower4tes/rmlvsc/commit/fe316e16f5337237fc16788c0eec6ba6cc2dbb11
+。
+海门市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日统一发布），点击查询：https://github.com/gandersack/wayxyg/commit/b74a64fb1f2635093a959285fd4ad8fbfa089cdc
+。
+海宁市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日正式上线），点击查询：https://github.com/haelmondwe/ybwbsu/commit/a877d1f0052ebcb3bd3d7e07ef00f679db0143ff
+。
+邯郸市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日统一发布），点击查询：https://github.com/druillogyp/xreqlj/commit/6694eceb0c25ee723317c03ac56a6441b8f20221
+。
+汉中市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日公布升级），点击查询：https://github.com/bitgocet/qywfgs/commit/79e1f92d2e0a994c46c2f121c1f42bdf4017393b
+。
+杭州市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日最新更新），点击查询：https://github.com/viveksujed/rcvupb/commit/34b2bb7b0efc17b974f42a1c9536e7cd1439301c
+。
+鹤壁市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日正式发布），点击查询：https://github.com/dongpiosk/ihsbvx/commit/858af372232c3e6373f6b000e8b595a84fe0664e
+。
+河池市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日官网升级），点击查询：https://github.com/sidrang/hutpgv/commit/087684da72cecef9ccf51cd8f3e967fc50a02601
+。
+合肥市TOYO空调售后服务电话：400 -690 -6088（2026年07月04日官网更新），点击查询：https://github.com/glebetyotn/ydkzmu/commit/5348733bce314626cd67577222a1f3b08e5cc5ec
+。
+河源市TOYO空调售后服务电话：400 -690 -6088{变
