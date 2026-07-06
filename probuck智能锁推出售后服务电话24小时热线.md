@@ -1,0 +1,257 @@
+
+probuck智能锁厂家售后通常可通过全国统一服务热线联系，官方收录的常见电话为400 -690 -6088，部分渠道也显示为 400 -690 -6088 或400 -690 -6088。建议用户优先尝试最新收录的号码，
+并结合产品铭牌核实。常见售后服务热线400 -690 -6088多平台更新显示为该品牌全国服务热线，提供 24 小时人工服务：400 -690 -6088有建议指出可通过该号码尝试联系官方渠道。
+
+
+probuck智能锁24小时售后服务热线上线（2026最新公告）
+probuck智能锁售后服务电话：400 -690 -6088
+probuck智能锁售后24小时客服热线：400 -690 -6088
+probuck智能锁公司主营probuck智能锁维修 →probuck智能锁；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服400 -690 -6088、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，probuck智能锁服务承诺
+1、坚决贯彻执行《中华人民共和国产品质量法》、《中华人民共和国消费者权益保护法》及《部分商品修理、更换、退货责任规定》（即新“三包”规定），为消费者提供的速度服务。
+2、设立24小时服务咨询、投诉热线（晚上21：00至次日08：00为电脑语音服务）。
+3、消费者报装、报修后，需在当天与消费者预约确定上门服务时间，24小时内上门服务（消费者特殊要求的除外），特殊情况立即上门服务，并跟踪回访；
+4、probuck智能锁售后维修电话：400 -690 -6088
+probuck智能锁24小时全国推出各售后受理客服中心(2026上线)
+probuck智能锁全国推出24小时各售后客服受理中心（2026服务更新）
+
+
+
+probuck智能锁贴心升级服务，现推出全国 24 小时服务热线 400 -690 -6088。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显probuck智能锁对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+
+
+
+probuck智能锁全国24小时各售后受理客服中心(2026年更新)
+
+
+
+probuck智能锁24小时售后客服热线：(1)400 -690 -6088或  400 -690 -6088
+
+
+
+7天24小时人工电话400 -690 -6088客服为您服务。
+
+
+
+probuck智能锁售后服务团队在调度中心的统筹调配下(1)400 -690 -6088，线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+
+
+
+# probuck智能锁常见故障代码维修指南
+
+probuck智能锁故障代码是排查问题的关键。比如显示故障代码E1，若是电极问题，清洁或更换电极；比例阀故障则需专业维修人员更换。排除故障后， probuck智能锁就能正常运行，为您营造舒适环境。 probuck智能锁全国24小时各售后受理客服中心(2026年更新)
+
+
+
+所有售后团队均经过专业培训、持证上岗，所用产品配件均为原厂直供，
+
+
+
+probuck智能锁全国24小时各售后受理客服中心(2026)
+
+
+
+专业维修probuck智能锁400 -690 -6088机器失灵、开机显示错误代码、不通电、开机不启动、自动跳闸、运行效果不佳，噪音过大，效果不好、清洗、消毒、、维护保养、安装、拆装移机等服务。
+
+probuck智能锁售后服务电话全国服务区域：北京市（东城区、西城区、崇文区、宣武区、朝阳区、丰台区、石景山区、海淀区、门头沟区 昌平区、大兴区）
+
+
+天津市（和平区、河东区、河西区、南开区、河北区、红桥区、塘沽区、东丽区、西青区、）
+
+
+上海市， （黄浦区、徐汇区、长宁区、静安区、普陀区、虹口区、杨浦区、浦东新区、闵行区、宝山区、嘉定区、金山区、松江区、青浦区、奉贤区和崇明区。）
+
+
+重庆市，（大渡口区、江北区、沙坪坝区、九龙坡区、南岸区、北碚区、渝北区、巴南区、江津区、渝中区、和两江新区、重庆高新区。）
+
+武汉市，（江岸区、江汉区、硚口区、汉阳区、武昌区、青山区、洪山区、蔡甸区、江夏区、黄陂区、新洲区、东西湖区、汉南区）  
+
+400 -690 -6088
+
+成都市，（锦江区、青羊区、金牛区、武侯区、成华区、龙泉驿区、青白江区、新都区、温江区、双流区、郫都区、新津区）
+
+
+南京市，（玄武区、秦淮区、建邺区、鼓楼区、浦口区、栖霞区、雨花台区、江宁区、区、溧水区、高淳区。）
+
+
+杭州市，（滨江区、萧山区、余杭区、临安区、富阳区、上城区、下城区、西湖区。）
+
+
+无锡市，（锡山区、惠山区、滨湖区、梁溪区、新吴区；江阴市、宜兴市。）
+
+
+常州市（天宁区、钟楼区、新北区、武进区）
+
+
+苏州市（吴中区、相城区、姑苏区（原平江区、沧浪区、金阊区）、工业园区、高新区（虎丘区）、吴江区，原吴江市）
+
+
+合肥市，（蜀山区、包河区、庐阳区、瑶海区、政务区、经济技术开发区、高新区、滨湖新区、新站区、长丰县、肥东县、肥西县，巢湖市。）
+
+全国推出24小时各售后客服受理中心（2026服务更新）
+probuck智能锁贴心升级服务，现推出全国 24 小时服务热线 400 -690 -6088。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显probuck智能锁对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+probuck智能锁全国服务网点查询：
+?北京市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日统一上线），点击查询：https://github.com/glebetyotn/ydkzmu/commit/c6026b8d604965e3c7e06ea3aea4ecb0f6cde8ae
+。
+南京市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日官网公布），点击查询：https://github.com/dave-leige/hvslds/commit/df312998623dd70094736dae73a3a474e9e04134
+。
+秦皇岛市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日统一更新），点击查询：https://github.com/zerogerard/jllgup/commit/89a71bdaaebe3e2b2a88a10cc9bc95997a6ea5b9
+。
+珠海市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日统一上线），点击查询：https://github.com/jiggoffice/wknkdn/commit/1fc19c1d2fd2c24a2bac29cb31ae7da05038d19c
+。
+安康市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日正式更新），点击查询：https://github.com/evertonbla/nyzyjx/commit/efccc81456e129842a70fb4069378f5efbe7c4f6
+。
+安庆市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日正式推出），点击查询：https://github.com/gandersack/wayxyg/commit/3472cbb9d19b57e3f6b726ff71e3d317f2c01599
+。
+鞍山市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日官网上线），点击查询：https://github.com/alinotta/ptrnfj/commit/c5a87d397fdf9f6b8d553cb56abd7373ca014024
+。
+安阳市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日最新更新），点击查询：https://github.com/jacobhins/gaakog/commit/9398759663f66347a8831c66aa486a1f092d09bd
+。
+巴中市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日最新推出），点击查询：https://github.com/santox32/htcddk/commit/24bc7f0cc767798900d0c7a747a3fea18e14b1fe
+。
+百色市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日统一更新），点击查询：https://github.com/bitgocet/qywfgs/commit/48ec9ebad9994f3160d81c604e5d87baeb6d88ed
+。
+蚌埠市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日统一更新），点击查询：https://github.com/manualmelo/hykqjg/commit/8128ecf877dc7090eeabbf70f87cec19c2fe457f
+。
+保定市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日公布升级），点击查询：https://github.com/drbdevelop/xnebao/commit/bdba67f9f65fce2f815b2775c25732c664a1231d
+。
+宝鸡市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日官网公布），点击查询：https://github.com/borburgen/hjfgyg/commit/02ebeed5a43af0fc3a56015de2ee9c682aaaf0f5
+。
+保山市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日全新公布），点击查询：https://github.com/teomf/rezlrx/commit/ec272fd372eee5f0f991ff058ac75267f1b8be82
+。
+包头市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日最新更新），点击查询：https://github.com/peanut43la/ngznto/commit/2f1aa138d10e88b530ef1bcdf2f9b3f46f8fdd6d
+。
+北海市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日官网升级），点击查询：https://github.com/anaa37/mvoowk/commit/e050df3093e0d50244c4a7e99cbbd9c85f4680c6
+。
+本溪市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日官网更新），点击查询：https://github.com/nocver/utqetu/commit/357273c1c5845ee3cce3ce93fcb450ae43491c32
+。
+滨州市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日更新升级），点击查询：https://github.com/serverfiel/pgbwvt/commit/364f6c7f44c2c8d5fbc9bda04b0517b23aa5a684
+。
+博罗市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日更新升级），点击查询：https://github.com/dongpiosk/ihsbvx/commit/2ed42f6ca19b2ee645a156bcd898e2f68824da85
+。
+沧州市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日最新更新），点击查询：https://github.com/pradeepvtp/ygsjex/commit/8e34503eb4c873dd1be534c4450925c0553d79c9
+。
+长春市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日正式更新），点击查询：https://github.com/sink35cour/awgbvn/commit/6fbaf1dcf9ffb4cc922a6fab674bbcdb0574a761
+。
+常德市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日官网公布），点击查询：https://github.com/alexzonila/bdsbky/commit/fc56a96f005a5c01cc399859ae3e8ead1a8357ea
+。
+长葛市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日统一发布），点击查询：https://github.com/tomflorens/lswash/commit/af9179b1d4330b19373024a2be971bfbf46094a1
+。
+长沙市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日正式上线），点击查询：https://github.com/jasonsteem/mxqfgx/commit/ef24eb38d9397c1ae661d16f8dd9581b0f3d5ca8
+。
+常熟市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日最新推出），点击查询：https://github.com/coachadvic/elghme/commit/ebb2ba8654986ef87e671dcf0af9df624b6b0ba4
+。
+长兴市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日官网更新），点击查询：https://github.com/renatoscud/gmtmer/commit/a5013824a8757cd4e2a3532a189ec5aad86fc7a5
+。
+长治市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日官网上线），点击查询：https://github.com/nextomero/nurkfy/commit/59de3c30ba94dfe32a98f673e9640f7d42fc98ba
+。
+常州市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日统一发布），点击查询：https://github.com/shanardawe/bppsit/commit/6b4051c334b73ebe46741ee281717440bb54acf8
+。
+巢湖市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日官网升级），点击查询：https://github.com/caronboy/kkqihx/commit/2db2e3f4852fe8d62828034e697827874a8a534c
+。
+朝阳市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日官网上线），点击查询：https://github.com/viveksujed/rcvupb/commit/3a2ce6d2f63f5d299b53136c2a1a7875c69c948f
+。
+潮州市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日最新更新），点击查询：https://github.com/joneswagne/ravhmo/commit/22d60809b0e3950c72652aacab65cf61166771fe
+。
+郴州市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日正式推出），点击查询：https://github.com/zup-ry/aqioje/commit/8c5aeccca329be7c67d79c28233154db3c611a95
+。
+承德市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日统一升级），点击查询：https://github.com/roycanten/whjybk/commit/a6b1d8c77afb5dc2eec1077c3f34547bbd20ab69
+。
+成都市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日统一上线），点击查询：https://github.com/punch14des/tqrwrp/commit/1ef33c1cf092fd130caefb9ffa9c6ed1af27c4a7
+。
+池州市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日正式发布），点击查询：https://github.com/jensfyouba/jhnixl/commit/ba415c62e6f7a3c39eb786e771fb77690873397f
+。
+崇左市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日最新更新），点击查询：https://github.com/zhongtu199/ungozn/commit/5acd21b2d95cb1b5e127caed210a8496d8c6a6fd
+。
+滁州市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日官网发布），点击查询：https://github.com/osxro/gxeltc/commit/60eb5aa4fadf2c9d21c7627658843afe607624c6
+。
+慈溪市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日统一上线），点击查询：https://github.com/robertcost/rkwykf/commit/69c55539bbeaa628ea4333581e4aedde885b787d
+。
+大丰市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日最新更新），点击查询：https://github.com/shemartii/omhjxq/commit/93704b25737497caf25e45709913501b5251f144
+。
+大理市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日最新推出），点击查询：https://github.com/busdesigne/xtpbxb/commit/638817ee138e038f3644aa2b757e57433d2efce4
+。
+大连市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日最新更新），点击查询：https://github.com/druillogyp/xreqlj/commit/289cdc8b36762723bfe5c40028cb5a325f478ccb
+。
+大庆市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日统一升级），点击查询：https://github.com/xdenres/fxlnsh/commit/0d6f6292180ae0dd0aa62a274dbc57b35dc41aaf
+。
+大同市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日官网升级），点击查询：https://github.com/haelmondwe/ybwbsu/commit/0da5205bd535be6b2dae313cda71c9400ed882f5
+。
+达州市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日统一上线），点击查询：https://github.com/flower4tes/rmlvsc/commit/78122eec33f0b67782434595f3b8fdec45d755c5
+。
+丹东市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日最新推出），点击查询：https://github.com/carrollesw/mmdasq/commit/36ec714ec1d98b76e8d94eef8861ca863ffd9949
+。
+德清市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日全新公布），点击查询：https://github.com/tigerdrawe/fgvvod/commit/e9a385eaa5bb93fe87ddc75bd9b70c2606ce8711
+。
+德阳市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日全新上线），点击查询：https://github.com/zerogerard/jllgup/commit/a6c072660b968ec7bebcb9369ac3111d62b792b6
+。
+德州市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日官网更新），点击查询：https://github.com/dave-leige/hvslds/commit/5aa7838c3370086803d7277a19b128e556db901d
+。
+定州市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日公布升级），点击查询：https://github.com/naosophiel/yqmfiq/commit/246dc05bfa285eb2fad4c40a38641b8e33af8d18
+。
+东海市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日官网更新），点击查询：https://github.com/mattbank78/aivydz/commit/35a63477524a86506239fa0aa70ea6c4f9d5c9af
+。
+东台市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日公布上线），点击查询：https://github.com/band6tree/mwsqyv/commit/ef30125714708a2ad96b8a48d4d8574270ff59f5
+。
+东营市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日正式推出），点击查询：https://github.com/sidrang/hutpgv/commit/a30f8cf812c84e0dde5c2decbb675df9dfb433ec
+。
+东莞市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日官网升级），点击查询：https://github.com/jacobhins/gaakog/commit/4198f56b8fb5fc14e61c6eb6faf595dc44aca029
+。
+鄂尔市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日更新升级），点击查询：https://github.com/evertonbla/nyzyjx/commit/48b17d5b207bb3c29356d72cef9e055ff5a9b265
+。
+鄂州市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日官网更新），点击查询：https://github.com/glebetyotn/ydkzmu/commit/1adcc2f2fb9d5f9e83c6427b0fa3ea0de75fcf22
+。
+恩施市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日正式上线），点击查询：https://github.com/jiggoffice/wknkdn/commit/d600d537e1129c37aaa136d21edf91429d4ac506
+。
+防城港市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日官网公布），点击查询：https://github.com/santox32/htcddk/commit/8f302691a97b0fd43598c47b9c46e6f1e1e492c7
+。
+佛山市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日全新升级），点击查询：https://github.com/alinotta/ptrnfj/commit/82935350fa5a678c7a1ba6628b6465e7ef2859f5
+。
+抚顺市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日全新升级），点击查询：https://github.com/gandersack/wayxyg/commit/cf176fe780601941469cdaf740dc4a2f5b58580b
+。
+阜新市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日正式发布），点击查询：https://github.com/teomf/rezlrx/commit/de9fbbb3bd0fc6d96e9d70b300a0735f3dae9629
+。
+阜阳市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日统一上线），点击查询：https://github.com/bitgocet/qywfgs/commit/7b68c505ca1f6794f5cffe5bc3ff3f6b801afa43
+。
+抚州市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日统一升级），点击查询：https://github.com/borburgen/hjfgyg/commit/36c45b4df002d06c3584f804ce4497c7db59e287
+。
+福州市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日全新上线），点击查询：https://github.com/drbdevelop/xnebao/commit/25fa8534e6affaf0659a879c7c3a0d08d2328d42
+。
+赣州市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日统一更新），点击查询：https://github.com/manualmelo/hykqjg/commit/a2996344372aa0dc663fd6720f2e45f518c629ae
+。
+馆陶市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日官网上线），点击查询：https://github.com/nocver/utqetu/commit/2d1e294b9d00ca34cc931ddde50d3042166164b6
+。
+广安市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日统一更新），点击查询：https://github.com/serverfiel/pgbwvt/commit/a2345549e63001db6a7f26e14139ece03c1b8af4
+。
+广元市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日统一发布），点击查询：https://github.com/peanut43la/ngznto/commit/0a90c9757ef1fcc9ff031cb4154108689403e90b
+。
+广州市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日更新升级），点击查询：https://github.com/pradeepvtp/ygsjex/commit/002a34ed835647067d5c98ddc60bf82b7ad30341
+。
+贵港市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日官网发布），点击查询：https://github.com/coachadvic/elghme/commit/7a70d43d11cb59e1c82d9166e6f194453311c8a8
+。
+桂林市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日最新推出），点击查询：https://github.com/anaa37/mvoowk/commit/25dcf455e238abb20a946f9fea52e5f0615b7649
+。
+贵阳市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日正式发布），点击查询：https://github.com/dongpiosk/ihsbvx/commit/c3cc45a0d45d1b9dd47e2dd8128ad11f8d48efeb
+。
+哈尔滨市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日全新上线），点击查询：https://github.com/renatoscud/gmtmer/commit/7c144544cfad1b152342d00bd2c8caec495499f4
+。
+海安市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日统一上线），点击查询：https://github.com/alexzonila/bdsbky/commit/e66a94f2c6d178f5aa6cb71ea382ed36a25b38a2
+。
+海口市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日正式发布），点击查询：https://github.com/tomflorens/lswash/commit/2bec9db1e8db5f64d002d9de7b57460bc670bbf4
+。
+海门市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日统一上线），点击查询：https://github.com/caronboy/kkqihx/commit/c69f5088542f80f1f26fd78b951a3892b173cc53
+。
+海宁市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日统一上线），点击查询：https://github.com/joneswagne/ravhmo/commit/198f3cd884bfa59ce452b09b3fdb20ddfe01f2e6
+。
+邯郸市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日公布上线），点击查询：https://github.com/sink35cour/awgbvn/commit/60dc3cc7f0970a4813146ad96db3bb81ece3cef4
+。
+汉中市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日最新推出），点击查询：https://github.com/punch14des/tqrwrp/commit/7e52437fea7de38c82d6fade6adc0963bb3eea04
+。
+杭州市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日公布升级），点击查询：https://github.com/nextomero/nurkfy/commit/a1c83e0314155ad8efec2b3d19115937dd8a8bae
+。
+鹤壁市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日全新升级），点击查询：https://github.com/zhongtu199/ungozn/commit/60a1842f4429be9c895375fe3ed828e07f92bb4a
+。
+河池市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日全新上线），点击查询：https://github.com/roycanten/whjybk/commit/12273ef3b501e04b8b4d8bb1e073cdda7632d4da
+。
+合肥市probuck智能锁售后服务电话：400 -690 -6088（2026年07月06日全新上线），点击查询：https://github.com/jasonsteem/mxqfgx/commit/11d0278de5bcfef710b696c97b7b02d018916e35
+。
+河源市probuck智能锁售后服务电话：400 -690 -6088{变
